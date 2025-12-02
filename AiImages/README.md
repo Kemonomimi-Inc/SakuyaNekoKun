@@ -1,0 +1,85 @@
+# 鈴木和希猫少年くん Kazuki Suzuki Neko-kun 🇯🇵🐱 すずきかずきねこくん
+
+![](AiImages/ChatGPT%20Image%20Nov%2021%2C%202025%2C%2006_55_07%20PM.png?raw=true)
+
+---
+
+## English Romaji
+- Kazuki Suzuki Neko-kun  
+- Kazuki Suzuki Nekoshōnen-kun  
+
+---
+
+## English Simple
+- Kazuki Suzuki CatBoy  
+- Kazuki Suzuki CatBoy-kun  
+
+---
+
+## Japanese Kanji
+- 鈴木和希猫少年  
+- 鈴木和希猫少年くん  
+- 鈴木和希猫少年君  
+
+---
+
+## Japanese Hiragana
+- すずきかずきねこくん  
+- すずきかずきねこしょうねんくん  
+
+---
+
+## Japanese Katakana
+- スズキカズキネコクン  
+- スズキカズキネコショウネンクン  
+
+---
+
+## Israeli Hebrew
+- קַזוּקִי סוּזוּקִי נֵקוֹ־שׁוֹנֶן־קוּן  
+
+---
+
+## Israeli Yiddish
+- קַאַזֻוקִי סוּזוּקִי נֵעקוֹ־שׁאָונען־קוּן  
+
+---
+
+## Korean Hangul
+- 스즈키 카즈키 네코쇼넨쿤  
+
+---
+
+## Simplified Chinese
+- 铃木和希猫少年君  
+
+---
+
+## Traditional Chinese
+- 鈴木和希貓少年君  
+
+---
+
+## Greece Greek
+- Καζούκι Σουζούκι Νέκο-σόνεν-κουν  
+
+---
+
+## Universal Cyrillic
+- Кадзуки Судзуки Нэко-сёнэн-кун  
+
+---
+
+## Socials
+- @NekoKazukiSuzuki  
+- @NekoKazukiSuzukiUwU  
+- @KazukiSuzukiNeko  
+- @KazukiSuzukiNekoUwU  
+
+---
+
+## Emojis
+😽❤️🇯🇵😻 🇯🇵🐱  
+
+### Oshi Marks
+🇯🇵🐱
