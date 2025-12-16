@@ -1,6 +1,6 @@
 # 朔也猫青年くん Sakuya Neko-kun 💠🐱 さくやねこくん
 
-![](AiImages/ChatGPT%20Image%20Nov%2021%2C%202025%2C%20006_55_07%20PM.png?raw=true)
+![](ChatGPT%20Image%20Dec%2015%2C%202025%2C%2007_06_36%20PM.png?raw=true)
 
 ---
 
